@@ -1,5 +1,5 @@
 ## Hey! I'm Yaseen.
-I'm a third-year Computer Science major at the University of Maryland. I am currently seeking Summer 2026 CS internships, feel free to email me! (ykhan126@terpmail.umd.edu)
+I'm a fourth-year Computer Science major at the University of Maryland. I am currently seeking jobs post-graduation May 2026, feel free to email me! (ykhan126@terpmail.umd.edu)
 
 I'm all in on learning how to use programming and problem-solving to help people and make the world a better place. 
 
